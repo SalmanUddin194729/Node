@@ -1,1 +1,1 @@
-# Subscribrit
+# Subscribre or shut up
